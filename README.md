@@ -1,6 +1,6 @@
 # life
-怎样才算是一个充实的人生?
 
+怎样才算是一个充实的人生?
 
 1. You dont have to have a dream
 
